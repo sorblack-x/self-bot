@@ -27,9 +27,9 @@ prime Team
 [YellowHat](http://telegram.me/yellowhat)<br>
 [mohamad](http://telegram.me/mohammad20162015)<br>
 [mehrshad](http://telegram.me/ThisisMEHRSHAD)<br>
-[Mr.Puker](http://telegram.me/puker)<br>
+[haj pro](http://telegram.me/alireza_PT)<br>
 
-BeatBot Team Channel
+prime Team Channel
 -----------------
 
-[BeatBot Team](http://telegram.me/beatbot_team)
+[prime Team](http://telegram.me/PrimeTeam)
